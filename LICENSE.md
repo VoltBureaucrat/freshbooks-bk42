@@ -1,4 +1,4 @@
-# 
+# rare QuickBooks para PC plugins é o melhor QuickBooks para PC plugins com demonstrativo de resultados e faturamento recorrente. Seguro, confiável e otimizado para máximo
 
 
 
